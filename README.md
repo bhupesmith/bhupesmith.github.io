@@ -1,2 +1,2 @@
 # bhupesmith.github.io
-Bhupendra Jhas
+Bhupe Smith github page
